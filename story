@@ -1,0 +1,1 @@
+One day, BRR was in the woods, scouring for fruits to bring to her beloved grandmother. On the way she met a wolf.
